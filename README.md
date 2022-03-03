@@ -18,6 +18,13 @@
 - Instagram: [@rickymormor](https://instagram.com/rickymormor)
 - Twitter: [@rickymormor](https://twitter.com/rickymormor)
 
+👤 **Temitope Ogunleye**
+
+- GitHub: [@githubhandle](https://github.com/topeogunleye)
+- Twitter: [@twitterhandle](https://twitter.com/topeogunleye21)
+- LinkedIn: [LinkedIn](https://linkedin.com/in/ogunleye)
+
+
 
 ## 🤝 Contributing
 
